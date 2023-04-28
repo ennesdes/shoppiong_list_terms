@@ -1,0 +1,1 @@
+# shoppiong_list_terms
